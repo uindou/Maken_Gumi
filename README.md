@@ -1,1 +1,0 @@
-# Maken_Gumi
